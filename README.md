@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Ashley!
+- 👀 I’m interested in learning new languages!
+- 🌱 I’m currently learning korean
+- 💞️ I’m looking to collaborate on nothing yet.
+- 📫 How to reach me, by my discord Ash_The_Seonghwa_Simp#9336
